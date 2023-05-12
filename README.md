@@ -15,7 +15,7 @@
 - A passionate Self-taught Front-end developer
 - Currently learning Web Development by Self
 - Personal website [repo](https://github.com/sNorlax-98/portfolio)
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://read.cv/0xabdulkhalid)
+- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://youtube.com/shorts/9jstbkcSfV8?feature=share)
 
 <br><br>
 
